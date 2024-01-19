@@ -1,2 +1,5 @@
-# inelys.github.io
-My personal page
+# Inelys
+
+Psychologist
+
+[t.me/inelys89](https://t.me/inelys89)
